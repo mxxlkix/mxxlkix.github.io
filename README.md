@@ -1,3 +1,3 @@
-# mxxlkix.github.io
+# mxxlkix.github.io/file:///home/anonym/discord/index.html
 
-insane.. file:///home/anonym/discord/index.html
+
